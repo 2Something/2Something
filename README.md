@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="6886024936073981176" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/blu-zushi-cat-maxwell-maxwell-the-cat-black-and-white-cat-gif-6886024936073981176">Blu Zushi Cat Sticker</a>from <a href="https://tenor.com/search/blu+zushi-stickers">Blu Zushi Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="https://media.tenor.com/X5ATMhUr7PgAAAAi/blu-zushi-cat.gif"/>

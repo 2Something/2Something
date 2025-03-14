@@ -1,1 +1,1 @@
-<img src="https://media.tenor.com/X5ATMhUr7PgAAAAi/blu-zushi-cat.gif"/>
+<img src="https://i.giphy.com/982IAsALsL68kvVUDJ.webp"/>
